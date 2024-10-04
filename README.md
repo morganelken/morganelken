@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @morganelken
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning.
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in figuring my MIS class out. It is tough but I want to be able to understand 
+- 🌱 I’m currently learning how to write my own website and more about computers.
+- 💞️ I’m looking to collaborate on building my own website!
 - 📫 How to reach me: morganelken0810@gmail.com
 - 😄 Pronouns: She/Hers/Her
 - ⚡ Fun fact: I love to tavel and do anything outside
